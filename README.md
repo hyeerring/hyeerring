@@ -1,1 +1,1 @@
-![snowMan](https://user-images.githubusercontent.com/119287211/205587798-66ca0f65-55cf-461e-a330-cb2c9b3a4852.jpg)
+![snowmaan](https://user-images.githubusercontent.com/119287211/205775501-90eb7137-988e-44ce-8601-9fed81fe7e9c.jpg)
